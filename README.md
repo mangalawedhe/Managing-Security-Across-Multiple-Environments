@@ -102,5 +102,5 @@ This project is licensed under **MIT License**. Feel free to use and contribute!
 ---
 
 ## 🚀 **Stay Connected**
-📧 Email: sharanujm10@gmail.com  
-🤝 LinkedIn: https://www.linkedin.com/in/sharanu-j-m-8917861bb/ 
+📧 Email: abhimangalawedhe2003@gmail.com  
+🤝 LinkedIn: https://www.linkedin.com/in/abhishek-mangalawedhe-7b791727b?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
